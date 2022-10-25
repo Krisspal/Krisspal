@@ -1,5 +1,5 @@
 
-Welcome to my profile
+Welcome to my page
 ======
 
 ## Basic info:
