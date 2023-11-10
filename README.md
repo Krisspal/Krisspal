@@ -4,7 +4,7 @@ Welcome to my page
 
 ## Basic info:
 
-I'm @Krisspal  
+I'm @Kriss  
 K21 Student of Ho Chi Minh City Open University  
 My major is Information Management System  
 
